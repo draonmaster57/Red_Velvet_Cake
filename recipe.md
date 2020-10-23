@@ -1,0 +1,1 @@
+Choose a Recipe. Choose the Right Baking Pans. Allow Ingredients to Reach Room Temperature. Prep the Pans. Preheat the Oven. Stir Together Dry Ingredients. Combine the butter and sugar. Add Eggs One at a Time. Alternate Adding Dry and Wet Ingredients. Pour Batter Into Pans and Bake.
